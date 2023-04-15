@@ -19,3 +19,4 @@ NIM   : 312010478
 ![3](https://user-images.githubusercontent.com/101391579/232178970-a87745b4-8585-4e1e-b486-c333f8e48339.jpeg)
 
 
+![7](https://user-images.githubusercontent.com/101391579/232179329-e83894af-97f9-4cd0-b00e-e33f9a94dbf9.jpeg)
